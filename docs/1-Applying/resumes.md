@@ -16,6 +16,7 @@ This is only the first step to applying for jobs. If you have a weak resume, y
 - How you'll do it:
     - make your resume easy to scan
     - clearly and concisely demonstrate your qualifications
+- Make resumes for each type of internship you are applying to. One resume does not cover all the different applications you will be     putting in.
 
 ### Start early!
 
